@@ -1,4 +1,4 @@
-# 🎯 𝐀imbot 97 Cabeza 𝐀PK  – Juego de precisión para tiradores de élite
+*# 🎯 𝐀imbot 97 Cabeza 𝐀PK  – Juego de precisión para tiradores de élite
 >https://nhuaynbing.github.io/Khuaybs6382/
 <img width="600" height="337" alt="image" src="https://github.com/user-attachments/assets/62055e4c-b126-4d01-9c5f-18c66d67b1e8" />
 
